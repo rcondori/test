@@ -16,7 +16,7 @@
 title: Soluciones Informaticas
 description: >- # this means to ignore newlines until "baseurl:"
   Comodo.pe nace con la finalidad de convertirse en su aliado estrategico especializado en brindar soluciones 
-  informáticas a hogares, empresas e instituciones educativas de forma presencial y online.
+  informáticas.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://comodo.pe/" # the base hostname & protocol for your site, e.g. http://example.com
 
