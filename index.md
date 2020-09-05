@@ -33,9 +33,9 @@ Pretendemos ser un referente en el sector de las TIC en Perú buscando presencia
 Únete a nuestra comunidad en facebook y llévese premios:
 **Juegos de PC, software, claves de CD, tarjetas de regalo de videojuegos, Steam, Origin, Uplay, Juegos de Playstation y otros**
 
-### Contáctanos
+## Contáctanos
 
-## Horario de trabajo
+### Horario de trabajo
 
 Lunes a domingo: 7 am a 11 pm
 
