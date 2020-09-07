@@ -32,7 +32,7 @@ Pretendemos ser un referente en el sector de las TIC en Perú buscando presencia
 
 Software con ofertas y descuento compra online.
 
-* Licencia Microsoft, Windows 10, Windows 8.1, Windows 8
+* Licencia Microsoft, Office, Windows 10, Windows 8.1, Windows 8
 * Licencia ESET, NOD 32, Antivirus Eset Multi-device Security, Antivirus Eset Nod32
 * Licencia MCAFEE, Antivirus - Mcafee Live Safe, Mcafee Antivirus Plus
 * Licencia Karpesky, Anti-Virus, Internet Security, Total Security
