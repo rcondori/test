@@ -57,4 +57,4 @@ Brindamos atención a todos nuestros clientes 24/7. En persona o a distancia.
 
 Si estás interesado en hablar conmigo sobre el trabajo que hago, por favor escríbeme y podemos [comenzar una conversación](https://bit.ly/2Ej9ep5).
 
-También estoy presente en: [Celular](tel:+51922612625) / [Whatsapp](https://wa.me/51922612625) &mdash; Tel: 51922612625
+También estoy presente en: [Celular: +51922612625](tel:+51922612625) &mdash; [Whatsapp](https://wa.me/51922612625)
