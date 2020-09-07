@@ -16,11 +16,11 @@ Pretendemos ser un referente en el sector de las TIC en Perú buscando presencia
 ## Servicios informáticos
 1. Contar con una sólida infraestructura de TI y soluciones de colaboración adecuadas, es fundamental para que hogares, empresas e instituciones educativas eviten gastos innecesarios.
 * Instalación de camaras de seguridad (CCTV)
-* Servicio Técnico de Reparación de Computadora y Laptop’s.
+* Servicio Técnico de Reparación de Computadora y Laptop.
 * Servicio de Configuración de Redes de PCs , Impresoras.
-* Limpieza y Eliminación de Virus y troyanos de PCs, Laptop’s.
-* Servicio De Mantenimiento Preventivo & Correctivo de PC’s.
-* Reparación de computadoras a domicilio Empresa y hogares
+* Limpieza y Eliminación de Virus y troyanos de PCs, Laptops.
+* Servicio De Mantenimiento Preventivo & Correctivo de PCs.
+* Reparación de computadoras a domicilio Empresa y hogares.
 
   **Con una sola llamada, usted podrá solucionar cualquier problema o duda informática en su hogar o en su oficina, ofrecemos un servicio técnico a domicilio & asistencia de forma remota, el cuál le atenderá con la rapidez que usted necesita.**
 
@@ -41,9 +41,9 @@ Software con ofertas y descuento compra online.
 
 ### [Únete a Nuestra Comunidad en Facebook](https://bit.ly/2FJphgv)
 
-Software de Pago 100% Original &mdash; Gratuitos 100% &mdash; Perfectamente Válidos.
+Participa de Sorteos, Llévese Software de Pago 100% Original &mdash; 100% Gratuitos &mdash; Perfectamente Válidos.
 
-Juegos de PC, software, claves de CD, tarjetas de regalo de videojuegos, Steam, Origin, Uplay, Juegos de Playstation y otros
+Juegos de PC, software, claves de CD, tarjetas de regalo de videojuegos, Steam, Origin, Uplay, Juegos de Playstation y otros.
 
 **Infórmate sobre las condiciones**
 
