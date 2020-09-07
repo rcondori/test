@@ -28,19 +28,32 @@ Pretendemos ser un referente en el sector de las TIC en Perú buscando presencia
 
 3. Consultoría TI: Antivirus y AntiSpam, Certificados Digitales, DLP-RMS, Seguridad WIFI, Firewall, Monitoreo.
 
+## Venta de Software 100% Original
+
+Software con ofertas y descuento compra online.
+
+* Licencia Microsoft, Windows 10, Windows 8.1, Windows 8
+* Licencia ESET, NOD 32, Antivirus Eset Multi-device Security, Antivirus Eset Nod32
+* Licencia MCAFEE, Antivirus - Mcafee Live Safe, Mcafee Antivirus Plus
+* Licencia Karpesky, Anti-Virus, Internet Security, Total Security
+
+
+
 ### [Únete a Nuestra Comunidad en Facebook](https://bit.ly/2FJphgv)
 
-Únete a nuestra comunidad en facebook y llévese premios:
-**Juegos de PC, software, claves de CD, tarjetas de regalo de videojuegos, Steam, Origin, Uplay, Juegos de Playstation y otros**
+Software de pago 100% Original Gratuitos 100% Perfectamente Válidos.
+Juegos de PC, software, claves de CD, tarjetas de regalo de videojuegos, Steam, Origin, Uplay, Juegos de Playstation y otros
+
+**Infórmate sobre las condiciones**
+
 
 ## Horario de trabajo
 
 Lunes a domingo: 7 am a 11 pm
-
 Brindamos atención a todos nuestros clientes 24/7. En persona o a distancia.
 
 ## Contáctanos
 
 Si estás interesado en hablar conmigo sobre el trabajo que hago, por favor escríbeme y podemos [comenzar una conversación](https://bit.ly/2Ej9ep5).
 
-También estoy presente en: [Whatsapp](https://wa.me/51922612625)
+También estoy presente en: [Celular](tel:+51922612625)[Whatsapp](https://wa.me/51922612625) &mdash; tel:+51922612625
