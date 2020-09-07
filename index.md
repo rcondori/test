@@ -24,9 +24,7 @@ Pretendemos ser un referente en el sector de las TIC en Perú buscando presencia
 
   **Con una sola llamada, usted podrá solucionar cualquier problema o duda informática en su hogar o en su oficina, ofrecemos un servicio técnico a domicilio & asistencia de forma remota, el cuál le atenderá con la rapidez que usted necesita.**
 
-2. Consultoría TI: Migración e Implementación, Servicio de colaboración, Servicio de redes y comunicaciones, Servicio de base de datos, Auditoria y administración de TI, Help desk, monitoreo e inventario.
-
-3. Consultoría TI: Antivirus y AntiSpam, Certificados Digitales, DLP-RMS, Seguridad WIFI, Firewall, Monitoreo.
+2. Consultoría TI: Antivirus y AntiSpam, Certificados Digitales, DLP-RMS, Seguridad WIFI, Firewall, Monitoreo.
 
 ## Venta de Software 100% Original
 
